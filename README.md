@@ -2,7 +2,7 @@
 
 ### Data Analyst I · Business Intelligence · Automation & Applied AI
 
-[Portfolio](https://eduarda-reis-data-ai.eduardareis1616.chatgpt.site/) · [LinkedIn](https://www.linkedin.com/in/eduarda-reis-95b95624a/) · [Power BI Dashboards](https://sites.google.com/view/portflioeduardareis/in%C3%ADcio) · [Résumé](https://eduarda-reis-data-ai.eduardareis1616.chatgpt.site/documents/curriculo-eduarda-reis.pdf)
+[Portfolio](https://eduarda-reis-data-ai.eduardareis1616.chatgpt.site/) · [LinkedIn](https://www.linkedin.com/in/eduarda-reis-95b95624a/) · [Power BI Dashboards](https://sites.google.com/view/portflioeduardareis/in%C3%ADcio) · [Curriculum](https://eduarda-reis-data-ai.eduardareis1616.chatgpt.site/documents/curriculo-eduarda-reis.pdf)
 
 ## About / Sobre
 
